@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... programming , team work 
 - 🌱 I’m currently learning ... software engineering
 - 💞️ I’m looking to collaborate on ... programming language , web development ,software development
-- 📫 How to reach me ...aneni.kidanu@aastustudent.edu.et
+- 📫 How to reach me ... anenikidanu@gmail.com
 - 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ... 
 
